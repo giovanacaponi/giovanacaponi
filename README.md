@@ -1,5 +1,5 @@
 ## **OLÁ!** 💗
 
-Meu nome é **Olá gostaria**  🧼
+Meu nome é  🧼
 
 - Estou estudando na Alura 😃
